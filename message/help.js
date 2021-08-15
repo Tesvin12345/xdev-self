@@ -184,7 +184,9 @@ return`*╭─❒ 「 X - Dev Bot 」 ──────*
 
 
 
+💋OWNER  
 
+                      TESVIN💋
 
 
 
